@@ -1,3 +1,4 @@
 # Connect
-https://shivkumarnagre.github.io/ConnectWithMe/
+[Have a look!](https://shivkumarnagre.github.io/ConnectWithMe/
+)
 
